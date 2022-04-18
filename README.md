@@ -5,7 +5,7 @@ Pronouns: 🇩​​​​​🇪​​​​​🇪​​​​​🇿/🇳​�
 - 👋 Hi, I’m @qozyx
 - 👀 I’m interested in getting this bag
 - 🌱 I’m currently learning about the dark
-- 💞️ I’m looking to collaborate on the vision
+- 💞️ I’m looking to fucks with the vision
 - 📫 You can reach me on telegram @imlikesowhat
 
 
